@@ -1,1 +1,1 @@
-Hello, Welcome to great leaders from Bangalore, Mysore and Tumkur
+Hello, Welcome to great leaders from Bangalore, Manglore, Mysore and Tumkur
